@@ -1,4 +1,4 @@
-## [Google Data Analytics Professional Certificate](https://www.coursera.org/professional-certificates/google-data-analytics)
+## [Google Data Analytics Professional Certificate](https://www.coursera.org/account/accomplishments/specialization/certificate/KZ2DQLVZSALZ)
 
 &nbsp;
 
